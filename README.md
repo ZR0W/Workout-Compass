@@ -9,6 +9,9 @@ A blog dedicated to documenting studies and articles that help seek a north-poin
 - testosterone and health
 - Masterbation and testosterone[^1]
 
+### Other recources
+- [Best overall video](https://www.youtube.com/watch?v=Pok0Jg2JAkE&t=183s)
+
 ### routine currently in use
 - Summer
   - pull ups (3 x 5)
